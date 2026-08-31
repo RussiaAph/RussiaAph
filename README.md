@@ -19,13 +19,13 @@ Matt ㅤ![](https://files.catbox.moe/5vhvtu.gif)ㅤ.ㅤHe  ㅤ  /  ㅤ  Pup  ㅤ
 
 <p align="center"
   
-6teen  ㅤ,,  ㅤtaken by the cutest
+6teen  ,, taken by the cutest <image align="center"  src=https://64.media.tumblr.com/4d79de9a282132efd504adcbfc5c7cf6/d3ecf425d6adeae9-60/s400x600/ed0169e2e683afabcf1056def6d633ebc23abb63.gifv height="30"></p>
 
 <br />
 
 <p align="center"
   
-darkship + proship + profic
+![](https://mocha.crd.co/assets/images/gallery26/e684b32d_original.gif?v=667e73fe) darkship + proship + profic <image align="center"  src=https://64.media.tumblr.com/4d72dd50ee0224418c70a2a407e216de/943afdc41ba0fb1e-63/s640x960/adfe8a665389c7f3a0c8b9dd1d80c37fbe13f56a.pnj height="30"></p>
 
 <br />
 
