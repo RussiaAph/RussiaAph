@@ -5,7 +5,8 @@
 
 <image align="left" src=https://i.postimg.cc/TPnfCGyf/Sans-titre-35-20260831132044.png height="400"></p> 
 
-
+<p align="center"
+<a href="https://hits.sh/github.com/RussiaAph/hits/"><img alt="Hits" src="https://hits.sh/github.com/RussiaAph/hits.svg?label=puppies&color=ffcf8b"/></a>
 
 
 
