@@ -30,7 +30,7 @@ darkship + proship + profic
 
 <p align="center"
   
-Russia yume and Canada irl
+Russia yume and Canada irl ,, AmeCan lover !!
 
 <br />
 
