@@ -3,7 +3,7 @@
 
 <br />
 
-<image align="left" src=https://i.postimg.cc/TPnfCGyf/Sans-titre-35-20260831132044.png height="500"></p> 
+<image align="left" src=https://i.postimg.cc/TPnfCGyf/Sans-titre-35-20260831132044.png height="400"></p> 
 
 
 
