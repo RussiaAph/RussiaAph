@@ -25,7 +25,7 @@ Matt ㅤ![](https://files.catbox.moe/5vhvtu.gif)ㅤ.ㅤHe  ㅤ  /  ㅤ  Pup  ㅤ
 
 <p align="center"
   
-![](https://mocha.crd.co/assets/images/gallery26/e684b32d_original.gif?v=667e73fe) darkship + proship + profic <image align="center"  src=https://64.media.tumblr.com/4d72dd50ee0224418c70a2a407e216de/943afdc41ba0fb1e-63/s640x960/adfe8a665389c7f3a0c8b9dd1d80c37fbe13f56a.pnj height="30"></p>
+![](https://mocha.crd.co/assets/images/gallery26/e684b32d_original.gif?v=667e73fe) darkship + proship + profic <image align="center"  src=https://64.media.tumblr.com/4d72dd50ee0224418c70a2a407e216de/943afdc41ba0fb1e-63/s640x960/adfe8a665389c7f3a0c8b9dd1d80c37fbe13f56a.pnj height="45"></p>
 
 <br />
 
