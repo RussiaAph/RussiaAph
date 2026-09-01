@@ -41,7 +41,7 @@ Russia yume and Canada irl ,, AmeCan lover !!
 
 <p align="center"
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[shared rentry](https://rentry.co/puplamb) ㅤ [rentry](https://rentry.co/can-ame) ㅤ [ata](https://pawing.atabook.org/) ㅤ [strawpage](https://pawlick.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[shared rentry](https://rentry.co/puplamb) ㅤ [rentry](https://rentry.co/can-ame) ㅤ [ata](https://pawing.atabook.org/) ㅤ [strawpage](https://pawlick.straw.page)
 
 <p align="right"
 
